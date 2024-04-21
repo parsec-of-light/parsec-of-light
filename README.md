@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @parsec-of-light
+- 👀 I’m interested in engines / vehicle simulators
+- 🌱 I’m currently learning N/A
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me N/A
+- 😄 Pronouns: they / them
